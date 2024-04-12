@@ -4,4 +4,4 @@ I have heard that a lot of people finish high school and they are kinda just flu
 
 Since (as of Writing) I'm a highschooler at the moment, I haven't truly gone through these myself yet and I will just be gathering up helpful YouTube Videos and summarizing the key points and my interpretation of it for quick referance but do watch them in full when I link them to get the full picture.
 
-With all that out of the way let's move on to (Insert something here page not complete) (Link to next page here)
+With all that out of the way let's move on to moving out to your own place to live: https://github.com/enderpirate98/hta-moving
